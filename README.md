@@ -14,5 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Location: Nashua, Nh
+Location: Nashua, NH
+
 Favorite fluors: Pe-Dazzle594
