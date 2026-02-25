@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Location: Nashua, NH
+Location: Ivalice, Planet Gaia
 
-Favorite fluors: Pe-Dazzle594
+Favorite fluor: Pe-Dazzle594
